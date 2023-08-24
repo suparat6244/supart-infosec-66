@@ -1,6 +1,6 @@
-# Suparat-infosec-66
+# Supara-infosec-66
 
-## My profile
+## My Information
 -Miss.suparat poonsawat
 - 6302041610065
 - CED4RA
